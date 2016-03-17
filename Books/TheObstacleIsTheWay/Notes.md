@@ -37,6 +37,7 @@ It is how we interpret a situation that put's a label on it.  Our conditioning, 
 
 > Nothing either good or bad, but thinking makes it so. --Shakespeare
 
+
 > An employee in your company makes a careless mistake that costs you business, This can be exactly what you spend so
 much time and effort trying to avoid. *Or*, with a shift in perception, it can be exactly what you were looking for -- the chance
 to pierce through defenses and teach a lesson that can be learned only by experience. A *mistake* becomes *training*.
