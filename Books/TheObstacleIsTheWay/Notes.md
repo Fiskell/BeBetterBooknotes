@@ -1,6 +1,6 @@
 About the book
 ======
-http://www.amazon.com/Obstacle-Way-Timeless-Turning-Triumph/dp/1591846358/ref=sr_1_1?ie=UTF8&qid=1458191781&sr=8-1&keywords=the+obstacle+is+the+way
+[Link to Amazon](http://www.amazon.com/Obstacle-Way-Timeless-Turning-Triumph/dp/1591846358/ref=sr_1_1?ie=UTF8&qid=1458191781&sr=8-1&keywords=the+obstacle+is+the+way)
 
 Why I chose it
 ======
