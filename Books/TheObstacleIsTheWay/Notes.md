@@ -12,6 +12,12 @@ Stoicism has been so influential within my own life that this book was chosen as
 Notes
 ======
 
+Preface
+------
+> [stoicism] A formula for thriving not just in spite of whatever happens but *because of it*.
+
+> The impediment to action advances action. What stands in the way becomes the way.
+
 Section 1
 ------
 
