@@ -15,10 +15,12 @@ Notes
 Preface
 ------
 > *The impediment to action advances action. What stands in the way becomes the way.*
+
 This powerful quote is where the title of the book comes from.
 
 
 > [stoicism] A formula for thriving not just in spite of whatever happens but *because of it*.
+
 Another quote about obstacles, this one reminds me a bit of how overcoming failures is an antifragile system
 
 
