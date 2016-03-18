@@ -52,6 +52,23 @@ We decide what story to tell ourselves.
 It is easy to listen to other's negativity.  Often we create a state of learned helplessness.  
 It doesn't have to end that way, AAA (action is always the answer) and in this case, action is how we think about situations.
 
+> The risk of being overwhelmed is always there
+
+Driving home again that we have a choice and that we choose to have events affect us
+
+> talent is not the most sought-after characteristic. Grace and poise are.
+
+If we see someone who can handle themselves well under pressure then they show immense strength, It would make sense why I would
+want to be like that person and why grace and poise are so highly valued.  Someone who is at ease with themselves.
+
+> There is always a countermove, always an escape or a way through, so there is no reason to get worked up.
+
+Unless it ends in our own death, we can and must always continue. There are still options, choices, that we make to construct a life of meaning.
+
+> If your nerve holds, then nothing really did "happen" -- our perception made sure it was nothing of consequence.
+
+Negative events occur when we view them as such, perceive what you want to and choose to believe.  Seeing is important, but how you see is even more important.
+
 Section 2
 ------
 
