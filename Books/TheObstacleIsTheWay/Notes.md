@@ -24,7 +24,7 @@ This powerful quote is where the title of the book comes from.
 Another quote about obstacles, this one reminds me a bit of how overcoming failures is an antifragile system
 
 
-Section 1
+Section 1 -- Perception
 ------
 > you will discover, time and time again, that what matters most is not what these obstacles are
 but how we see them, how we react to them, and whether we keep our composure.
@@ -103,9 +103,10 @@ emotional muscle.
 This reminds me of the book *The slight edge* where in, it mentions the idea of always having a choice, no matter how small
 to either get better, or worse.  When we choose anger, we choose to not take that step towards becoming better.
 
-Section 2
+
+Section 2 -- Action
 ------
 
-Section 3
+Section 3 -- Will
 ------
 
