@@ -37,6 +37,7 @@ It is how we interpret a situation that put's a label on it.  Our conditioning, 
 
 > Nothing either good or bad, but thinking makes it so. --Shakespeare
 
+-
 
 > An employee in your company makes a careless mistake that costs you business, This can be exactly what you spend so
 much time and effort trying to avoid. *Or*, with a shift in perception, it can be exactly what you were looking for -- the chance
@@ -103,6 +104,27 @@ emotional muscle.
 This reminds me of the book *The slight edge* where in, it mentions the idea of always having a choice, no matter how small
 to either get better, or worse.  When we choose anger, we choose to not take that step towards becoming better.
 
+*[Book]: Book of Five Rings*
+
+> How often do we see what we think is there or should be there, instead of what actually is there?
+
+Looking objectively is a hard skill, one that needs constant attention.  Removing assumptions from what we see, or don't, is a difficult task.
+
+> The stoics use contempt as an agent to lay things bare and " *to strip away the legend that encrusts them* "
+
+> Marcus Aurelius had a version of this exercise where he'd describe glamorous or expensive things without their euphemism.
+-- roasted meat is a dead animal and vintage wine is old, fermented grapes.
+
+> Objectivity means removing "you" -- the subjective part -- from the equation.
+
+Putting anything on a pedestal limits our ability to truly *see* it for what it is.  By taking it down to it's bare components
+we are able to look at it objectively.
+
+> With other people we can be objective ... Take your situation and pretend it is not happening to you ... give yourself
+clarity, not sympathy.
+
+By removing ourselves from the issue at hand we are able to answer real questions easier, faster, and without as much
+emotional involvement.
 
 Section 2 -- Action
 ------
