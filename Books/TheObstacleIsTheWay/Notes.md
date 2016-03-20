@@ -126,6 +126,35 @@ clarity, not sympathy.
 By removing ourselves from the issue at hand we are able to answer real questions easier, faster, and without as much
 emotional involvement.
 
+> Man does not simply exist but always decides what his existence will be, what he will become the next moment. 
+By the same token, every human being has the freedom to change at any instant. -- Viktor Frankl
+
+Frankl's case is one of the most extreme circumstance, his actions prove that this way of thinking and being is not
+an idealistic principle, but rather one that is rooted in reality if we choose to accept it.
+
+*[Person]: General Pericles*
+
+> *Perspective is everything* : That is, when you can break apart something, or look at it from some new angle, it loses its power over you.
+
+If you let your mind fixate on an issue without trying to deconstruct it, then you will start tearing yourself apart.
+Keep dissecting it, from different angles. This way you can always be action oriented, trying new things.  Solve the problem, don't make it a bigger problem.
+
+> The task, as Pericles showed, is not to ignore fear but to explain it away ... break it apart.
+
+Simply ignoring our issues makes us hollow and will prevent us from doing what is most important, to iterate and get better.
+By ignoring issues, we will not be able to know what we can change, what we like or dislike.
+
+> It's your choice whether you want to put *I* in front of something ( *I hate public speaking. I screwed up. I am harmed by this.* )
+These add an extra element: *you* in relation to that obstacle, rather than just the obstacle itself.
+
+It is easy to make issues bigger than they are.  We try to talk ourselves in circles, convincing ourselves that we are
+not good enough, or cant compete.  Strip away the *I* and it will be easier to remove this issue by taking action and course correcting.
+
+I often say not to *Identify* with your problems, and instead find a *Strategy* for them.  If there is something you need to fix, such as procrastination
+then don't say "I procrastinate", instead ask, "Why do I not complete tasks earlier?". From this you will find more and more answers until you have an actionable result.
+Maybe it is because you don't get enough sleep. Why? Follow this trail of whys 5 times and you will surely end at the root cause of the issue you wish to fix.
+
+
 Section 2 -- Action
 ------
 
