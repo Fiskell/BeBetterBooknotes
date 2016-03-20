@@ -69,6 +69,40 @@ Unless it ends in our own death, we can and must always continue. There are stil
 
 Negative events occur when we view them as such, perceive what you want to and choose to believe.  Seeing is important, but how you see is even more important.
 
+> Would you have a great empire? Rule over yourself. -- Publius Syrus
+
+This quote reminds me of another, "The greatest form of mastery is master over oneself".
+
+> **apatheia**: It's the kind of calm equanimity that comes with the absence of irrational or extreme emotions. Not the
+loss of feeling altogether, just the loss of the harmful, unhelpful kind.
+
+This quote hits on a common misconception that people have about stoicism.  Often people will label someone as 'stoic' who looks
+hollow or silent with an angry look on their face.  Being 'stoic' is not a lack of emotions, just not acknowledgement
+of negative ones.
+
+> "When you worry, ask yourself, 'What am I choosing to not see right now?'" -- Gavin de Becker
+
+This reminds me of another quote: "It's what you are not willing to see, that is what holds you back".  It is easy to fall
+into a fixed mindset and choose not to look at our lives and actions objectively.  Without doing so means that we are limiting 
+ourselves to change and adapt to an ever changing environment.
+
+> Does getting upset provide you with more options?
+
+The answer is often, no, of course not.  Yet it is so easy to get upset.  Excercising the principles laid out in Stoicism
+means internalizing this and constantly taking action and re-adjusting to not get upset without just cause.
+
+> If you need to take a moment, by all means, go ahead.  Real strength lies in the *control* or, as Nassim Taleb put it
+the *domestication* of one's emotions.
+
+It is a path of least resistance to allow emotions to flow freely without stopping to think about them.  This is why calling 
+control over emotions 'real strength' is so powerful.  Strength to me is correlated with practice, and exercise of this 
+emotional muscle.
+
+> Wouldn't you be better off applying some of that resourcefulness rather than anger?"
+
+This reminds me of the book *The slight edge* where in, it mentions the idea of always having a choice, no matter how small
+to either get better, or worse.  When we choose anger, we choose to not take that step towards becoming better.
+
 Section 2
 ------
 
