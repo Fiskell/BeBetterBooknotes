@@ -154,6 +154,15 @@ I often say not to *Identify* with your problems, and instead find a *Strategy* 
 then don't say "I procrastinate", instead ask, "Why do I not complete tasks earlier?". From this you will find more and more answers until you have an actionable result.
 Maybe it is because you don't get enough sleep. Why? Follow this trail of whys 5 times and you will surely end at the root cause of the issue you wish to fix.
 
+> "Business opportunities are like buses; there's always another coming around." -- Richard Branson
+
+Don't fret over missed opportunities, learn from them so that you can take more advantage of the next one.
+
+> Is our perspective truly giving us *perspective* or is it what's actually causing the problem?
+
+We have to realize that our view is not always the best, and in many cases causes us all of our problems.
+
+
 
 Section 2 -- Action
 ------
