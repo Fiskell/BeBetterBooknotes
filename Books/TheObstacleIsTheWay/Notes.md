@@ -162,6 +162,12 @@ Don't fret over missed opportunities, learn from them so that you can take more 
 
 We have to realize that our view is not always the best, and in many cases causes us all of our problems.
 
+> If effort would affect the outcome, he would die on the field before he let that chance go to waste.
+
+Talking about Tommy John, one of baseball's most savvy and durable pitchers.
+
+When someone wants an outcome to no end, that is where you get to see how deeply someone cares.  It is all too common to
+talk about wanting something, but not willing to put in the work to get it.
 
 
 Section 2 -- Action
