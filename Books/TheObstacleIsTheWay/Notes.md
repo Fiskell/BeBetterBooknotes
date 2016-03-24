@@ -169,6 +169,15 @@ Talking about Tommy John, one of baseball's most savvy and durable pitchers.
 When someone wants an outcome to no end, that is where you get to see how deeply someone cares.  It is all too common to
 talk about wanting something, but not willing to put in the work to get it.
 
+> As a professional athlete his [Tommy John] job was to parse the difference between the unlikely and the impossible.
+
+There are a lot of times where we take things that are hard and label them as not possible.  Often the root cause of this
+is that we don't want to put in the energy or commit fully to trying something full force.
+
+> The most harmful dragon we chase is the one that makes us think we can change things that are simply not ours to change.
+
+Get negative thoughts about what we can't control out, then we can focus on the real issues.  Otherwise we just let our emotions
+spin around aimlessly.
 
 Section 2 -- Action
 ------
