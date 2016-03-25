@@ -179,6 +179,18 @@ is that we don't want to put in the energy or commit fully to trying something f
 Get negative thoughts about what we can't control out, then we can focus on the real issues.  Otherwise we just let our emotions
 spin around aimlessly.
 
+> "We cannot spend the day in explanation." -- Emerson
+> Don't waste time on false constructs.
+
+Time spent not taking action is usually wasted.  This reminds me of the idea of the manager versus producer.  For the 
+producer, the more time that is spend either explaining, or having things explained to (meetings), inherently means
+that less will be produced.  For managers however, if done right, a day spent in explanation could be beneficial as that
+is ofter the entire role.
+
+> Remember that this moment ins not your life, it's just a moment *in* your life.
+
+Winston said it best, "If you are going through hell, keep going"
+
 Section 2 -- Action
 ------
 
