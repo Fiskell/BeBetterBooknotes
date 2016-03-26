@@ -191,6 +191,11 @@ is ofter the entire role.
 
 Winston said it best, "If you are going through hell, keep going"
 
+> To him [Steve Jobs], when you factored in vision and work ethic, much of life was malleable.
+
+It is easy to tell someone they can't do something, but grit and work ethic push through all that bullshit.  There are so
+few people who have these skills that what you will be able to do will look superhuman
+
 Section 2 -- Action
 ------
 
