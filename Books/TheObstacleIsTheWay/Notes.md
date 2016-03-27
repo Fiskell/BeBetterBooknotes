@@ -196,6 +196,13 @@ Winston said it best, "If you are going through hell, keep going"
 It is easy to tell someone they can't do something, but grit and work ethic push through all that bullshit.  There are so
 few people who have these skills that what you will be able to do will look superhuman
 
+> Be open. Question
+
+If you have a fixed mindset then you will shut down many opportunities for growth for yourself and those around you.  This does
+not mean that you should not have opinions, instead it means that you should not be tied emotionally to your way of thinking.
+
+Be willing to admit that your way is wrong, so that you can evolve.
+
 Section 2 -- Action
 ------
 
