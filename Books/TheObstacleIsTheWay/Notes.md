@@ -203,6 +203,14 @@ not mean that you should not have opinions, instead it means that you should not
 
 Be willing to admit that your way is wrong, so that you can evolve.
 
+> Jobs refused to tolerate people who didn't believe in their own abilities to succeed.
+
+No eeyores.  If you don't believe you can do something, don't get in the way of someone who thinks they can.
+
+> Reject the first judgements and the objections that spring out of them because those objections are almost always rooted in fear.
+
+Again, no eeyores.  Come to judgement through action, through seeing.
+
 Section 2 -- Action
 ------
 
