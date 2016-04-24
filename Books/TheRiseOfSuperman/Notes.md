@@ -1,1 +1,2 @@
-todo
+About the book
+======
