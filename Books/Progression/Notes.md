@@ -5,10 +5,10 @@ Upstream Effects #1: Upstream Effects (96 - 244)
 What I have noticed to be especially interesting about not getting enough sleep is that if you are angry or stressed out that it is hard for me to detect this, however I get the feedback from others.  So having good habits is more important since self regulation of emotions is such a hard skill to fully grasp
 
 > What went right today?
-What would I do differently?
-What environmental things affected me?
-What should I start working on immediately tomorrow morning?
-Tomorrow's wake time:
+> What would I do differently?
+> What environmental things affected me?
+> What should I start working on immediately tomorrow morning?
+> Tomorrow's wake time:
 
 Great firebreak questions, I do a weekly check in, but as a daily check in, I think I may adopt many of these questions.
 
@@ -21,6 +21,15 @@ Creating healthy habits is so difficult, since they take disipline to build up a
 Set up habits so that every day you are reaping benefits from good habits.
 
 Upstream Effects #2: Entrainment (245 - 415)
+
+Resources:
+  Unlease the Warrior Within
+
+> It's like, things get written on their to-do list at the bottom, but the stuff at the top never gets done. It just gets longer and longer.
+
+Don't be a person of ever growing to-do's.  Throw away what you can't get done and focus on priorities.  See Warren Buffett's 5/25 rule
+
+> "For us in SEAL Team, work was only over once we were physically back home. The conventional wisdom said that the operation wasn't over until we were actually back in the showers at home. Up until that point, nothing could be taken for granted. When you are going toward your extraction point after you have taken out your primary target, you can get ambushed on the way home. Once back, when you're cleaning your gear, putting everything away so that you are set up for the next mission, you could have a loaded round in your weapon and accidentally shoot yourself or someone else through carelessness or lack of attention. There were times I was so dog-tired after a twenty-hour day in the field, I had to fight the call of sleep during that final half hour it would take to clean my M14. It was a chore that I would have loved to have blown off were it not for the fact that my training drilled into me the fact that a professional doesn't quit until every task is complete". - Unleash the Warrior Within
 
 Upstream Effects #3: Chemica (416 - 654)
 
