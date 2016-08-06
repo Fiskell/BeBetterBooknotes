@@ -31,6 +31,9 @@ Don't be a person of ever growing to-do's.  Throw away what you can't get done a
 
 > "For us in SEAL Team, work was only over once we were physically back home. The conventional wisdom said that the operation wasn't over until we were actually back in the showers at home. Up until that point, nothing could be taken for granted. When you are going toward your extraction point after you have taken out your primary target, you can get ambushed on the way home. Once back, when you're cleaning your gear, putting everything away so that you are set up for the next mission, you could have a loaded round in your weapon and accidentally shoot yourself or someone else through carelessness or lack of attention. There were times I was so dog-tired after a twenty-hour day in the field, I had to fight the call of sleep during that final half hour it would take to clean my M14. It was a chore that I would have loved to have blown off were it not for the fact that my training drilled into me the fact that a professional doesn't quit until every task is complete". - Unleash the Warrior Within
 
+
+> Over the last couple years, one repeatedly fruitful conversation at salon has been: "how much time are people actually thinking and making decisions"
+
 Upstream Effects #3: Chemica (416 - 654)
 
 Upstream Effects #4: Firebreaks and Rapid Repairs (655 - 855)
