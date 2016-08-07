@@ -37,7 +37,38 @@ Don't be a person of ever growing to-do's.  Throw away what you can't get done a
 This is a great question that seems to come up for me every night around 10pm.  My brain is worn down so it is no longer moving a million miles an hour.
 I have time to think about what I want and reflect on how the day went.  Unfortunately it also means I am tired and usually out of energy and will to do the thing.
 
+> But you can't fight your life as a series of moment-by-moment struggles. If you do, sometimes you'll clean your gear and put it away, and sometimes you'll lose the struggle and take the lazy way out.
+
+Entrainment, consistency.  There is a fundamental lack of trust I have for myself due to the monkey brain.  To 
+
+> Doing a weekly review every single Sunday, and making that the first thing you do on Sunday -- Entrainment.
+
+I do a firebreak every sunday using google forms.  I didn't know or read about weekly checkins, it had just felt like a natural thing to do.  I was delighted to find out that Sebastian also does them.
+
+> Willpower is great to get things moving, and terrible for keeping things moving.
+
+This reminds me of one of my favorite quotes: "Inspiration is perishable".  
+Whenever I have to do an activity fueled by willpower I stop and question my methods first.  If I believe that I can do the action consistently, and that I want to be doing the thing, then I continue.  There are of course exceptions, for example I may use willpower to get rote tasks complete that I have been putting off.
+
+
 Upstream Effects #3: Chemica (416 - 654)
+
+> In other words, when I come out of a fever, wash the sweat from my body, I start thinking -- maybe everyday life is a life of fever and illness; maybe I'm capable of much more.
+
+I agree with Sebastian so much on this point.  Ever time I am sick I constantly tell myself that once I am over with this illness, I will appreciate life more.
+But as creatures of equilibrium, we always fall back to w/e the daily norms are.  Even knowing ones own potential or even what 10% better looks like is outside of reach.
+Finding ones own utility, limits, and desires really takes a consistent, committed effort.  Firebreaks are a great start.
+
+> My rates of eating right, working in the morning, following good habits -- all of these fell apart after about three nights in a row of bad sleep.
+
+I cannot remember the last week where I remained disciplined  in all that I wanted to accomplish:
+Diet, Exercise, Work, Side Project, Social.  It is hard to ever remember a time where I accomplished two of my desired activities consistently.
+
+I have not tinkered with sleep patterns enough to know how it affects my ability to manage myself. Sebastian speaks so highly of sleep as a root of habitual evil.
+
+> Take very seriously your personal biochemistry, nutrition, consumption, rest, work, athletics, and environment. Experiment gradually to find out what works for you, and implement it.
+
+Experimentation with oneself I find to be so much fun.  I am a hearty believer in ketosis.  The effects it had on my mental state alone are amazing.  It is also cool seeing the side effects of such a diet, such as leg grams (lack of potassium), and the 'keto' flu (headache, diarrhea, foggy mind).  I also feel like a damn scientist ever time I have to pee on a keto stick to track progress.
 
 Upstream Effects #4: Firebreaks and Rapid Repairs (655 - 855)
 
