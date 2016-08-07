@@ -23,7 +23,7 @@ Set up habits so that every day you are reaping benefits from good habits.
 Upstream Effects #2: Entrainment (245 - 415)
 
 Resources:
-  Unlease the Warrior Within
+  Unleash the Warrior Within
 
 > It's like, things get written on their to-do list at the bottom, but the stuff at the top never gets done. It just gets longer and longer.
 
@@ -33,6 +33,9 @@ Don't be a person of ever growing to-do's.  Throw away what you can't get done a
 
 
 > Over the last couple years, one repeatedly fruitful conversation at salon has been: "how much time are people actually thinking and making decisions"
+
+This is a great question that seems to come up for me every night around 10pm.  My brain is worn down so it is no longer moving a million miles an hour.
+I have time to think about what I want and reflect on how the day went.  Unfortunately it also means I am tired and usually out of energy and will to do the thing.
 
 Upstream Effects #3: Chemica (416 - 654)
 
