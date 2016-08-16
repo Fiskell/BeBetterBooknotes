@@ -53,6 +53,11 @@ Whenever I have to do an activity fueled by willpower I stop and question my met
 
 Upstream Effects #3: Chemica (416 - 654)
 
+Resources:
+  Easy Strength by Dan John and Pavel Tsatsouline
+  The Calculus of Caffeine consumption by Arvind Narayanan
+  Examine.com's Summary of the science of caffine
+
 > In other words, when I come out of a fever, wash the sweat from my body, I start thinking -- maybe everyday life is a life of fever and illness; maybe I'm capable of much more.
 
 I agree with Sebastian so much on this point.  Ever time I am sick I constantly tell myself that once I am over with this illness, I will appreciate life more.
@@ -69,6 +74,11 @@ I have not tinkered with sleep patterns enough to know how it affects my ability
 > Take very seriously your personal biochemistry, nutrition, consumption, rest, work, athletics, and environment. Experiment gradually to find out what works for you, and implement it.
 
 Experimentation with oneself I find to be so much fun.  I am a hearty believer in ketosis.  The effects it had on my mental state alone are amazing.  It is also cool seeing the side effects of such a diet, such as leg grams (lack of potassium), and the 'keto' flu (headache, diarrhea, foggy mind).  I also feel like a damn scientist ever time I have to pee on a keto stick to track progress.
+
+> Study what performance oriented people do.
+
+This was a sub bullet to the above point but I really love how it is stated.  Performance oriented is a really interesting trait, not something I normally identify with most people.  Although when I
+see people who have consistent success it is normally this excact trait.  I would say that by reading this book and compiling notes that I am studying a performance oriented person already. =)
 
 Upstream Effects #4: Firebreaks and Rapid Repairs (655 - 855)
 
