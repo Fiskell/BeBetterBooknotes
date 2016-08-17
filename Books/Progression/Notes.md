@@ -80,6 +80,19 @@ Experimentation with oneself I find to be so much fun.  I am a hearty believer i
 This was a sub bullet to the above point but I really love how it is stated.  Performance oriented is a really interesting trait, not something I normally identify with most people.  Although when I
 see people who have consistent success it is normally this excact trait.  I would say that by reading this book and compiling notes that I am studying a performance oriented person already. =)
 
+> Four easy, perhaps life-changing types of experiments to run:
+> Track and Correlate
+> Blacklisting
+> Whitelisting
+> Timing experiments
+
+> Adherence rate is how often you actually do what you're going to try to do... Strongly consider adherence rate when you design an experiment.
+
+This is my number one rules while forming new habits.  Although, I find that convincing others that this is such an important tool is very difficult.  
+Others often let perfect be the enemy of good.
+
+
+
 Upstream Effects #4: Firebreaks and Rapid Repairs (655 - 855)
 
 Upstream Effects #5: Yesterday (856 - 954) 
